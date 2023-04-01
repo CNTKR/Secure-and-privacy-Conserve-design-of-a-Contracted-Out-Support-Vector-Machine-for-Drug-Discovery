@@ -1,0 +1,1 @@
+# Secure-and-privacy-Conserve-design-of-a-Contracted-Out-Support-Vector-Machine-for-Drug-Discovery
